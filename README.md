@@ -2,9 +2,3 @@
 
 Hello
 
-dldldldldldldldldldl
-d
-d
-d
-ddlkfjdlkfjdfjdsfk
-dfjdlkfjdlfjs
